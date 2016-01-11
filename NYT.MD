@@ -17,3 +17,5 @@ You see, the gun used in the Philadelphia attack [had been stolen](http://www.nb
 
 Our current discussion about increasing gun regulations often centers on efforts that would mostly affect people who legally buy firearms. Many of them make sense, in theory, but the truth is that they would not be likely to have a huge impact on criminal gun violence, because many of those criminals obtain their weapons illegally.
 So, when the gun lobby and gun owners make this case, we must admit that they have a point.
+
+![infographic](http://static01.nyt.com/images/2016/01/11/opinion/11blow-chart/11blow-chart-superJumbo.gif)
