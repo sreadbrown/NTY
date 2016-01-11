@@ -19,3 +19,7 @@ Our current discussion about increasing gun regulations often centers on efforts
 So, when the gun lobby and gun owners make this case, we must admit that they have a point.
 
 ![infographic](http://static01.nyt.com/images/2016/01/11/opinion/11blow-chart/11blow-chart-superJumbo.gif)
+
+If we want to truly put a dent in gun violence, we must take some incredibly unpopular steps in some pockets. Safety features — including smart guns that can only be fired by the owner — are going to have to be added to the market. That will be hard to sell because no one wants a gun to fail to because it lacks a charge or due to a technology glitch. One of benefits of traditional guns is that, technologically, they are simple and ancient. There are no batteries or chips.
+
+We are also likely to have to register guns and require insurance. This would be almost impossible, given the gun lobby’s and many gun owners’ current stance and the paranoid fears of confiscation, a fear some liberals feed.
